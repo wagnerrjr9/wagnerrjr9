@@ -13,6 +13,6 @@
 <br/>
 
 Apaixonado por tecnologia, videogames, musculação e por conhecer lugares e pessoas novas 🤟 <br/>
-Passionate about technology, video games, bodybuilding and discovering new places and people 🤟
+Passionate about technology, video games, fitness and discovering new places and people 🤟
 
 Email: wagnerrjr9@gmail.com
