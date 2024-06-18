@@ -12,7 +12,7 @@
 <img align="center" alt="html5" src="https://img.shields.io/badge/Python-14354C?style=for-the-badge&logo=python&logoColor=white" />
 <br/>
 
-Apaixonado por tecnologia, videogames, musculação e por conhecer lugares e pessoas novas 🤟
+Apaixonado por tecnologia, videogames, musculação e por conhecer lugares e pessoas novas 🤟 <br/>
 Passionate about technology, video games, bodybuilding and discovering new places and people 🤟
 
 Email: wagnerrjr9@gmail.com
